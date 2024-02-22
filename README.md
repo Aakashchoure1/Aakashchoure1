@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aakashchoure1
 - 👀 I’m interested in ...Computer Enginearing
-- 🌱 I’m currently learning .. Arizona State University
+- 🌱 I’m currently learning .. Chhindwara University
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... mrblack28092005@gmail.com
 - 😄 Pronouns: ...
